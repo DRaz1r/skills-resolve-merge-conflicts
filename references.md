@@ -1,7 +1,5 @@
 # References
 
-* wWERWSSScxzc
-
 * asWWWQS
 
-* etswwwwtsd
+* octocat 1 😈
